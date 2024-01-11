@@ -2,7 +2,7 @@
 
 Professor: Simon Wood
 
-<!-- 2019-01-10 -->
+<!-- 2019-01-10 --> (2024-01-11 for me)
 
 ## Week 1: What to Listen for in Film
 
